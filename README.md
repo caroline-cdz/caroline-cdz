@@ -8,9 +8,9 @@
 - 💡 Actively seeking collaboration on interesting projects
 
 #### 📫 How to reach me:
-- [LinkedIn]([www.linkedin.com/in/caroline-cardozo-almeida-47792a244](https://www.linkedin.com/in/caroline-cardozo-almeida-47792a244/))
-- [Email](caroline10.almeida@gmail.com)(23213766@aluno.univesp.br)
-
+- [LinkedIn](https://www.linkedin.com/in/caroline-cardozo-almeida-47792a244/)
+- [Email](caroline10.almeida@gmail.com)
+- [Email](23213766@aluno.univesp.br)
 #### 😄 Pronouns:
 - She/Her
 
